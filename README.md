@@ -1,0 +1,1 @@
+# daichishirai..github.io
